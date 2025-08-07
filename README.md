@@ -4,7 +4,7 @@
 
 I'm currently studying at Universidad de Guadalajara (CUCEI). I love learning, making progress, and solving challenges. 
 
-  "Sometimes, the best lessons come from breaking things.".
+  "Sometimes, the best lessons come from breaking things".
 
 ## Skills
 
